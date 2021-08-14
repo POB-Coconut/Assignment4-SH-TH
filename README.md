@@ -6,7 +6,7 @@
  
 ## Review Link 
 
-🔗 Notion Link : 
+🔗 Notion Link : https://five-pedestrian-462.notion.site/3-ffe7fa112c97472f8a6a09b2ff92de6f
 
 ## 😀 프로젝트 Memebers
 
